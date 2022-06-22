@@ -1,5 +1,16 @@
-Call me Sho0_
-Just that :>
+### Call me Sho0_ Just that :>
+**Yah!!!**
+
+**I am currently is student of Data Science in HUFLIT**
+
+**In this github, I'll share all my project I did it at university and something i learn by mah self 😈😈😈**
+
+Let's practice together!!! ✊
+-------------------------------------------------
+
+This is my contact:
+- Facebook 💁‍♂️: https://www.facebook.com/rc.sho0
+- Email 💁‍♀️: hoangson.huflit@gmail.com 
 
 ### :zap: GitHub Stats
 
