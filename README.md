@@ -10,7 +10,8 @@ Let's practice together!!! ✊
 
 This is my contact:
 - Facebook 💁‍♂️: https://www.facebook.com/rc.sho0
-- Email 💁‍♀️: hoangson.huflit@gmail.com 
+- Email 💁‍♀️: hoangson.huflit@gmail.com
+- Linkedin 💁: https://www.linkedin.com/in/rc-sho0
 
 ### :zap: GitHub Stats
 
