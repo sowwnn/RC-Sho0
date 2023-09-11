@@ -1,4 +1,5 @@
-Halo, call me Sho 🫡
+## Halo, call me Sho 🫡
+
 
 I'm an artificial intellegence researcher and engineer at the same time in [Viet Nam]()/ I just finished my bachelor of science in IT degree [@HUFLIT](https://huflit.edu.vn/en/)/ 
 I look forward to continuing my academic studies/ I am really excited about computer vision, especially medical image processing/
